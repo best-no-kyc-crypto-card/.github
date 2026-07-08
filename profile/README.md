@@ -4,8 +4,6 @@
 
 [Sovrae](https://sovrae.io/offer) is the best no-KYC crypto card for high limits. With this exclusive offer, https://sovrae.io/offer, and the code `offer`, you get fees between 1.5% and 2%, with spending limits up to $20,000 per transaction, $250,000 per day, and $1,000,000 per month.
 
-[Xkard](https://superwallet.xhype.io/sign-up?referral=offer) is the best no-KYC crypto card for travel and gift cards. With this exclusive link, https://superwallet.xhype.io/sign-up?referral=offer, you get the best price, plus a private marketplace to book hotels, activities, and car rentals and buy eSIMs and gift cards with crypto.
-
 ## Comparison of the 3 Best No-KYC Crypto Cards
 
 | Feature | Freedomia | Sovrae | Xkard |
